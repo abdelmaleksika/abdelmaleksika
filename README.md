@@ -2,7 +2,7 @@
 - 👀 I’m interested in gaming and basketball
 - 🌱 I’m currently learning python/django
 - 💞️ I’m looking to collaborate on a game
-- 📫 How to reach me = not (lgbtq
+- 📫 How to reach me = not (fuck lgbtq g
 
 <!---
 abdelmaleksika/abdelmaleksika is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
